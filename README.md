@@ -1,2 +1,12 @@
 # de-burgeroorlog-van-nederlandse-psychiaters
+
 2002-2021
+
+# mass murder
+https://en.wikipedia.org/wiki/Mass_murder
+
+# burgeroorlog
+https://nl.wikipedia.org/wiki/Burgeroorlog
+
+# staat der nederlanden
+https://nl.wikipedia.org/wiki/Staat_der_Nederlanden
